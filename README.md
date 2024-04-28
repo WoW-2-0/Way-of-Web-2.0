@@ -10,3 +10,11 @@
 
 ### Other materials
 
+### Team and Contacts
+
+Community email address - 
+
+Owner - Max
+
+Email address - sultonbek.rakhimov@gmail.com
+Telegram username - sultonbek_rakhimov
